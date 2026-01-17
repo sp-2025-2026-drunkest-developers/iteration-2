@@ -1,0 +1,1 @@
+Content of personal work of Велин Куртев <stu2201321043@uni-plovdiv.bg>

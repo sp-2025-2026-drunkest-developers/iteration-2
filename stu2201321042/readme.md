@@ -1,0 +1,1 @@
+Content of personal work of Маноел Сотиров <stu2201321042@uni-plovdiv.bg>
